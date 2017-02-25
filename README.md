@@ -1,3 +1,3 @@
-# Web 2 Starter
+# Magpie Splash Pare
 
-Put information about your project here. 
+Coming Soon placeholder
